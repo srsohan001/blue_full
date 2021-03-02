@@ -1,2 +1,2 @@
 # blue_full
- https://srsohan001.github.io/blue_full/
+ https://srsoohaan.github.io/blue_full/
